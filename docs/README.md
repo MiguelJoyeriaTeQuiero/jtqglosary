@@ -1,4 +1,4 @@
-# 🗂️ Glosario del Plan Estratégico – *Joyerías Te Quiero*
+# 🗂️ Glosario del Plan Estratégico – *TE QUIERO JEWELRY*
 
 > Este glosario reúne todos los términos relevantes utilizados en el plan estratégico, con definiciones adaptadas al contexto empresarial y joyero.
 
